@@ -18,16 +18,22 @@ I am a motivated professional with experience in office support, administration,
 - Documentation
 
 ## Work Experience
-- Office Staff – Almarai Head Office
-- Experience in administration and office support
+
+- Office Staff – Almarai Head Office, Riyadh, Saudi Arabia
+- Administrative support and office coordination
+- Documentation and record management
+- Team collaboration and communication
 
 ## Volunteer Experience
-- Bangladesh Human Rights Commission
-- NGO & Community Development Activities
 
+- President, Student Branch – Bangladesh Human Rights Commission
+- Secretary of Library – Barishal Metropolitan Branch, Bangladesh Human Rights Commission
+- Field Officer – Caritas Bangladesh (COVID-19 Awareness Project)
+- Community development and public awareness activities
 ## Career Goal
 To build an international career in administration, operations, and project management while making a positive contribution to society.
 
 ## Contact
-- LinkedIn: (Add your LinkedIn profile)
-- Email: (Add your email)
+- LinkedIn: https://www.linkedin.com/in/md-syful-islam-sohag-117689357?utm_source=share_via&utm_content=profile&utm_medium=member_android
+
+- Email: syfulislam1191@gmail.com
